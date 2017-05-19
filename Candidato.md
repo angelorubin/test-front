@@ -1,9 +1,9 @@
-Nome Completo: Luiz Boça
+Nome Completo: Angelo Rogério Rubin
 
-E-mail: luiz.boca@clubedosminigameiros.com.br
+E-mail: angelorubin@gmail.com
 
-Linkedin: http://linkedin.com/luiz.boca
+Linkedin: http://linkedin.com/angelorubin
 
-Telefone: (44) 44444-4444 
+Telefone: (19) 99399-9032
 
 Portfólio (Opicional): clubedosminigameiros.com.br/portfolio
